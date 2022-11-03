@@ -14,11 +14,11 @@ You can click the Preview link to take a look at your changes.
 
 ## 📫 How to reach me ...
 
-:incoming_envelope: Email: me@jeanjulienhessouh.com
+:incoming_envelope: Email me at: me@jeanjulienhessouh.com
 
-LinkedIn Profile: https://www.linkedin.com/in/jean-julien-hessouh/ 
+Connect wit me on LinkedIn: [Jean Julien Hessouh](https://www.linkedin.com/in/jean-julien-hessouh/)
 
-Twitter Profile: [@JeanJulien_H](https://twitter.com/JeanJulien_H)
+Follow me on: [@JeanJulien_H](https://twitter.com/JeanJulien_H)
 
 
 
