@@ -16,7 +16,7 @@ You can click the Preview link to take a look at your changes.
 
 :incoming_envelope: Email me at: me@jeanjulienhessouh.com
 
-Connect wit me on LinkedIn: [Jean Julien Hessouh](https://www.linkedin.com/in/jean-julien-hessouh/)
+Connect with me on LinkedIn: [Jean Julien Hessouh](https://www.linkedin.com/in/jean-julien-hessouh/)
 
 Follow me on: [@JeanJulien_H](https://twitter.com/JeanJulien_H)
 
